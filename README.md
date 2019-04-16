@@ -1,0 +1,1 @@
+# Valse2019Notes
